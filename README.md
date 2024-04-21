@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vesqueda
-- 👀 I’m interested in solution oriented action that will help people attune to natural cycles the earth and minimize our negative impacts of the modern world on earth.
+- 👀 I’m interested in solution oriented action that will help people attune to natural cycles and minimize our negative impacts of the modern world on earth.
 - 🌱 I’m currently learning how to offer SEO consultancy and preserve cultural seeds and stories from my community.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
